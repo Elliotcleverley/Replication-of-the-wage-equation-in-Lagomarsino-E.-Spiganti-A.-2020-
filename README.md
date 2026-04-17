@@ -1,1 +1,0 @@
-# Replication-of-the-wage-equation-in-Lagomarsino-E.-Spiganti-A.-2020-
